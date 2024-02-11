@@ -1,0 +1,2 @@
+# ErasylSolo
+Solo team
